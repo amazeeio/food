@@ -15,6 +15,6 @@
 - Put the pasta into the water
 - In a bowl put 2 yolks, the cheese, a spoon of cooking water and mix
 - Take the pasta "al dente" from the pot without drain it, put in the pan where you browned the
-- guanciale and toss it
+- Guanciale and toss it
 - Pour the yolks and mix by adding a bit of cooking water to get a creamy sauce
-- Grate pepper and cheese...and Buon Appetito :)
+- Grate pepper and cheese... and Buon Appetito :)
