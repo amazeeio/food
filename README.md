@@ -1,5 +1,10 @@
 # Pasta al amazee.io
+
+![Pasta al amazee.io](pasta-al-amazee-io-image.jpg)
+
 Catch amazee.io Systems Engineer, Vincenzo De Naro’s, recipe for his wildly popular and delicious Pasta al amazee.io presented live at DrupalCon Global!
+
+[Download recipe](pasta-al-amazee-io-recipe.pdf)
 
 # Ingredients
 
