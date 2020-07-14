@@ -7,6 +7,8 @@ Catch amazee.io Systems Engineer, Vincenzo De Naro’s, recipe for his wildly po
 - Pecorino Romano (Roman Sheep cheese) 20g / 0.045lbs
 - Black Pepper and Salt
 - Guanciale di Maiale (Pork Cheek) 100g / 0.22lbs
+- Uova (Eggs) 2 yolks
+- **NO** Cream, **NO** Onion, **NO** Garlic, **NO** Parmesan or Cheddar
 
 
 # Process
