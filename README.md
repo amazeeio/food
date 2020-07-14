@@ -1,6 +1,6 @@
 # Pasta al amazee.io
 
-# Ingridients
+# Ingredients
 
 - Pasta (Bucatini, Linguine or Spaghetti) 80g / 0.18lbs
 - Pecorino Romano (Roman Sheep cheese) 20g / 0.045lbs
